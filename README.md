@@ -1,1 +1,1 @@
-# l-trentin.github.io
+My Twine story is about four of King Henry VIII's wives. In this twine story you are able to choose which of the wives you would like to be. Each passage takes you through facts, influence, and what happened in their lives. In this twine narrative multimedia is included as well as stylization throughout each passage. 
